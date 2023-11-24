@@ -2,7 +2,7 @@
 - 👀 I’m interested in python,java,deep-learning
 - 🌱 I’m currently learning java
 - 💞️ I’m looking to collaborate on nobody
-- 📫 How to reach me brp12138@163.com
+- 📫 How to reach me brp12138@gmail.com
 - WORLD PEACE
 
 <!---
